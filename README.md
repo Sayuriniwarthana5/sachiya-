@@ -1,4 +1,4 @@
-<h1 align="center">⚜️𝙎𝘼𝘾𝙃𝙄𝙔𝘼 𝙊𝙁𝙁𝙄𝘾𝘼𝙇⚜️<br></h1>
+<h1 align="center">⚜️𝘿𝘼𝙍𝘼𝙆 𝙉𝙄𝙍𝙊 𝙑6⚜️<br></h1>
 <p align="center">
 <img src="https://i.ibb.co/NpXYnCh/Whats-App-Image-2022-10-10-at-10-37-16.jpg"
 
